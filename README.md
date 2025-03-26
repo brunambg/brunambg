@@ -6,7 +6,7 @@ I'm Bruna and I'm 20.
 ## About Me 💖
 
 - 🔭 I’m currently studying Computer Engineering.
-- 🎶 I love listening to music while coding and studying.
+- 🎶 I love listening to music while coding and studying, especially AC/DC.
 - 🦸‍♀️ Huge fan of Marvel and DC superheroes.
 - 💕 I'm all about pink and cute things! 🎀💖🌸
 - 🏰 Proud Hufflepuff and believer in loyalty, dedication, and friendship! 💛🦡
