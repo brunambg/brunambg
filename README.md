@@ -1,7 +1,7 @@
 ### 🌸 Welcome to My GitHub Profile! 🌸
 
 Hey there! 
-I'm Bruna and I'm 20.
+I'm Bruna and I'm 21.
 
 ## About Me 💖
 
